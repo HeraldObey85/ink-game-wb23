@@ -1,4 +1,4 @@
-#  
+#  ink game rare Scripts is the best ink game Script, featuring auto-heal and auto-farm. Safe and powerful for all your needs.
 
 
 
